@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @vanhuy2600, my full name is Ly Van Huy.
 - 👀 I’m interested in basketball, technology.
-- 🌱 I’m currently learning Information technology at Hutech University.
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me:
 
 Email address:lyvanhuy.it30@gmail.com
